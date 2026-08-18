@@ -275,6 +275,7 @@
 - Scorching Column 🔊🆓✅ (✍🏼 @RunicLibrarian)
 - Tidal Hands 🔊🆓✅ (✍🏼 @RunicLibrarian, 🛠️ @ChasarooniZ)
 - Torrent in the Blood 🔊🆓✅ (✍🏼 @Dio/PorradaNoGajo)
+- Winter Sleet 🔊🆓✅ (✍🏼 @RunicLibrarian)
 - Winter's Clutch 🔊🆓✅ (✍🏼 @RunicLibrarian, 🛠️ @ChasarooniZ)
 - Tremor 🔊🆓✅ (✍🏼 @RunicLibrarian, 🛠️ @ChasarooniZ)
 
